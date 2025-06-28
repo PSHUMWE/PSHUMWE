@@ -33,7 +33,7 @@
 ## 📫 How to reach me
 
 - ✉️ Email: pessahshumwe@gmail.com  
-- 🔗 LinkedIn: www.linkedin.com/in/pessah-shumwe-491a98243  
+- 🔗 LinkedIn: https://www.linkedin.com/in/pessah-shumwe-491a98243/
 - 🌍 Portfolio (coming soon)
 
 
